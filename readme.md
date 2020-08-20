@@ -6,4 +6,4 @@ You can see what I am currently up to on [natterstefan.me][1].
 
 ## 📬 Get in touch
 
-- LinkedIn: [https://www.linkedin.com/in/anderson-xavier-da-silva/][1]
+- LinkedIn: [https://www.linkedin.com/in/anderson-xavier-da-silva/]
