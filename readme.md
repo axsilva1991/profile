@@ -6,4 +6,4 @@ You can see what I am currently up to on.
 
 ## 📬 Get in touch
 
-- LinkedIn: [https://www.linkedin.com/in/anderson-xavier-da-silva/]
+- [LinkedIn](https://www.linkedin.com/in/anderson-xavier-da-silva/)
